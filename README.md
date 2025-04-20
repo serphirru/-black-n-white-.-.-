@@ -1,2 +1,21 @@
 # -black-n-white-.-.-
 ꕀ  hello , i’m axe or night !! just letting stuff so ya guys can know a lil more abt me ;; 
+♰ i have bpd, parcial amnesia, autism n tdah. 
+
+♰ dni 9 - 14 unless close friends. i don’t wanna have problems
+
+♰ please don’t flirt w me (even if it’s joking) i feel uncomfy w it. 
+
+♰ don’t do sxl jokes or comments around me pls 
+
+♰ dnc or take inspo in my skins, you can do a better job 
+
+♰ i’m fine w cuddles or hugs 
+
+♰ look closely my DNI in my name, sometimes i just want to int w friends oe partner! 
+
+♰i speak spanish, french, russian and eng
+
+♰i like drawing, it’s one of my hobby’s 
+
+♰i’m afraid of int first, if you want to int pla do it first 
